@@ -1,5 +1,4 @@
 # Halloween
-Jesse's Class
 
 
 
@@ -8,4 +7,7 @@ Brianna pop art costume
 I will be an Angel
 
 
-Talitha I will be a Galaxy 
+James will be a SpaceCowBoy
+
+Tali: or I will be a unicorn!
+
