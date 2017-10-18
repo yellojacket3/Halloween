@@ -12,3 +12,5 @@ SUGAR TOASTED PEANUTS
 
 Circus Peanut 
 
+Pam loves Chocolate!
+
