@@ -5,6 +5,7 @@ Resses
 KitKat
 Sweettarts
 Zours
+Pam loves Chocolate!
 
 Pam loves Chocolate!
 
